@@ -1,0 +1,2 @@
+![Screenshot_1710705913](https://github.com/x0rzavi/github-readme-terminal/assets/107553286/40a38287-88d9-4b51-8705-8096ada0a351)
+![Screenshot_1710705939](https://github.com/x0rzavi/github-readme-terminal/assets/107553286/3d2bd5fe-ea46-42f7-a887-2afa68d0a2c5)
